@@ -1,1 +1,1 @@
-# Karan-SIngh
+# Karan-Singh
